@@ -12,7 +12,7 @@
     1.  **Talento:** O sea, al azar.
     2.  **Trauma o intención muy fuerte:** Un estado mental o de pánico que fuerza el despertar.
     3.  **Contacto con un "Codicioso":** Ser atacado o tener un contacto muy cercano con uno te pone en ese estado mental que te "despierta".
-*   **Los "Codiciosos" (Nombre genérico provisional tipo hollows de bleach o maldiciones de JJK):** Criaturas que atacan a las personas. Si alguien despierta, SI O SI lo hacen pelear con los monstruos o mínimo tener un entrenamiento militar completo. si bien no se les a visto consumir humanos parecen atacarlos en base a su energia; y tienen un fuerte instinto en atacar personas entre mas tarden en hacerlo crece el impulso.
+*   **Los "Codiciosos" (Nombre genérico provisional tipo hollows de bleach o maldiciones de JJK):** Criaturas que atacan a las personas. Si alguien despierta, SI O SI lo hacen pelear con los monstruos o mínimo tener un entrenamiento militar completo. parecen preferir a los humanos en base a su energía, aunque se les ha visto sobrevivir por tiempo indeterminado sin alimento; y tienen un fuerte instinto en atacar personas: entre mas tarden en hacerlo, crece el impulso.
 *   **Marcas de desgaste:** Si un despertado fuerza demasiado su habilidad, empiezan a aparecer marcas de desgaste en su cuerpo (son como tatuajes). Dependiendo del tamaño, puede perder tiempo de su vida. Existe una regla de ayudas del gobierno donde te exentan de seguir siendo cazador si has perdido más de 15 años por desgaste.
 
 ---
