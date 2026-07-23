@@ -805,7 +805,7 @@ Al cruzar miradas con el recién llegado, un terror frío y visceral golpea a Sa
 
 La sola presencia del misterioso Líder del Culto emite una presión tan aplastante y abrumadora que apaga instantáneamente las llamas de Saki y Haruka. Como si la gravedad del lugar se hubiera multiplicado de golpe, todos los presentes —militares fuertemente armados, alumnos de élite y los propios protagonistas— son forzados a caer de rodillas, con los cuerpos paralizados e incapaces de mover un solo músculo.
 
-Manteniendo un silencio absoluto y una indiferencia que hiela la sangre, el Líder ignora por completo el arsenal militar que lo rodea. Camina con pasos pausados hasta llegar a la Sacerdotisa malherida, la levanta entre sus brazos con suma facilidad y, sin concederles una sola mirada ni pronunciar una sola palabra, se retira perdiéndose en la oscuridad del cielo nocturno.
+Manteniendo un silencio absoluto y una indiferencia que hiela la sangre, a la vez que una sonrisa relajada y perturbadora el Líder ignora por completo el arsenal militar que lo rodea. Camina con pasos pausados hasta llegar a la Sacerdotisa malherida, la levanta entre sus brazos con suma facilidad y, sin concederles una sola mirada ni pronunciar una sola palabra, se retira perdiéndose en la oscuridad del cielo nocturno.
 
 No les dio la más mínima oportunidad de moverse, atacar o exigir respuestas, dejando el campus sumido en ruinas y abandonando a Satoru y a su padre consumidos por una rabia y una impotencia amargas frente al verdadero abismo que apenas acaban de descubrir.
 
